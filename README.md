@@ -12,8 +12,8 @@ art of jimmy meowington!
 `~𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥⋆.☆˚𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥~`       
  
 sometimes i get angry easily, im so sorry if i make you upset!                       
- 
-i dont like death threats, even if they're just a joke                                
+                                            •°𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥⋆.☆˚𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥°• 
+                                            <img width="1500" height="237" alt="𝑖𝑠𝑠𝑢𝑒" src=""/>
 
 
 
