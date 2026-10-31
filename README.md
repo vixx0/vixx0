@@ -1,9 +1,29 @@
 ℎ𝑖!!                                       
 𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥⋆. 𐙚 ˚𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥                                    
   𝑎𝑏𝑜𝑢𝑡 𝑚𝑒!!!                             
-// multifandom !! //                       
-this is wip ok                             
-  DNI: problematic people, people who call people corny for being themselves and      people who make fun of other people's    interests 
+☆☆// multifandom !! //☆☆  
+collecting f/os like pokemon cards 🔥 🔥 
+
+i yumeship with MANY characters, ill list them all:                                  
+• anastasya feodorovna snezhnaya/tsaritsa
+(main f/o)                                 
+• lyney                                    
+• mitya (2nd main)                        
+• vesna
+• danica                                   
+• ronova                                   
+• odette                                   
+• navia                                    
+• furina                                   
+• ok i think i have more but idk           
+                                          
+☆my main fandoms!!!!!☆                    
+genshin,(PLEASE dni if you bully people for liking genshin, ive been bullied ALOT and its just a game with anime people like wtf ok sorry i crashed out a little)
+deltarune, undertale and ddlc 
+
+☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆             
+  
+  DNI: problematic people, people who call people corny for being themselves, MAPs, transphobic/homophobic people and people who make fun of other people's    interests 
 
 𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥⋆. 𐙚 ˚𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥              
 art of jimmy meowington!
