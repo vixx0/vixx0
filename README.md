@@ -2,7 +2,8 @@
 𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥⋆. 𐙚 ˚𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥                                    
   𝑎𝑏𝑜𝑢𝑡 𝑚𝑒!!!                             
 ☆☆// multifandom !! //☆☆  
-collecting f/os like pokemon cards 🔥 🔥 
+hi im vixx0 and i uhhh like afs 👍 
+peepee poopoo 
 
 i yumeship with MANY characters, ill list them all:                                  
 • anastasya feodorovna snezhnaya/tsaritsa
