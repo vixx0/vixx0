@@ -9,7 +9,7 @@ peepee poopoo
 genshin,(PLEASE dni if you bully people for liking genshin, ive been bullied ALOT and its just a game with anime people like wtf ok sorry i crashed out a little)
 deltarune, undertale and ddlc 
                                             
-i yumeship with MANY characters, ill list most of them:                                  
+i yumeship with many characters, ill list most of them:                                  
 • anastasya feodorovna snezhnaya/tsaritsa
 (main f/o)                                 
 • lyney                                    
@@ -22,7 +22,7 @@ i yumeship with MANY characters, ill list most of them:
 • furina                                   
 • ok i think i have more but idk           
                                           
-byi!!!!!☆
+byi!!!!!☆                                  
 sometimes i get angry easily, im VERY sorry if i make you upset!!                       
 im sensitive, do NOT be rude in any way     
 pls dni if you say genshit/gayshit/goonshit(DOESN'T apply when you didnt mean to hate on genshin and you were just joking and/or you're already a fan of it)
